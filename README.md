@@ -3,7 +3,7 @@
 
 - 👨‍💻 Tous mes projets sont dispo ici : [gabriel-manciu.be](gabriel-manciu.be)
 
-- ⚡ Fun fact **J'adore Doctor Who. C'est cool Doctor Who**
+- ⚡ Fun fact : **j'adore Doctor Who. C'est cool Doctor Who. Regardez Doctor Who**
 
 <h3 align="left">Suivez-moi sur :</h3>
 <p align="left">
